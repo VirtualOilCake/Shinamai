@@ -22,3 +22,7 @@ Xiaohua notice something is weird about her sound.
 Xiaohua is a Chinese, as a proud Chinese national, she tries to find some Lianhua Qingwen capsule to help her with the cold. 
 
 "That's weird... Where did my Chinese medicine go?"
+
+Xiaohua can't find any Lianhua Qingwen where she usually put them. 
+
+"What is that? Xocova...? Hmmm, it feels familiar but I don't know what it is..."
