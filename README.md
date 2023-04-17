@@ -18,3 +18,7 @@ Xiaohua wakes up from her bed kind of confused.
 Xiaohua notice something is weird about her sound. 
 
 "Mmnn, is it a cold...? Y'know my body does feel duller than usual..." Xiaohua talks to herself.
+
+Xiaohua is a Chinese, as a proud Chinese national, she tries to find some Lianhua Qingwen capsule to help her with the cold. 
+
+"That's weird... Where did my Chinese medicine go?"
