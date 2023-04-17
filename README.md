@@ -26,3 +26,9 @@ Xiaohua is a Chinese, as a proud Chinese national, she tries to find some Lianhu
 Xiaohua can't find any Lianhua Qingwen where she usually put them. 
 
 "What is that? Xocova...? Hmmm, it feels familiar but I don't know what it is..."
+
+"Wait... don't tell me..."
+
+Xiaohua realize what is wrong. She opened her closet, and there were no Hanfu, but only Kimono.
+
+"Chikuso!"
