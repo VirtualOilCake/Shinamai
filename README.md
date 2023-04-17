@@ -16,3 +16,5 @@ Xiaohua wakes up from her bed kind of confused.
 "Aaah...Ahhhh..."
 
 Xiaohua notice something is weird about her sound. 
+
+"Mmnn, is it a cold...? Y'know my body does feel duller than usual..." Xiaohua talks to herself.
