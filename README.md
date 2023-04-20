@@ -32,3 +32,5 @@ Xiaohua can't find any Lianhua Qingwen where she usually put them.
 Xiaohua realize what is wrong. She opened her closet, and there were no Hanfu, but only Kimono.
 
 "Chikuso!"
+
+Xiaohua is shocked and let out a Japanese expression "Chikuso". She realized that something has happened to her body, she is now a Japanese!
