@@ -12,7 +12,7 @@ Xiaohua wakes up from her bed kind of confused.
 
 "Aaah...Ahhhh..."
 
-Xiaohua notice something is weird about her sound.
+Xiaohua notice something weird about her sound.
 
 "Mmnn, is it a cold...? Y'know my body does feel duller than usual..." Xiaohua talks to herself.
 
@@ -26,7 +26,7 @@ Xiaohua can't find any Lianhua Qingwen where she usually put them.
 
 "Wait... don't tell me..."
 
-Xiaohua realizes what is wrong. She opened her closet, and there were no Hanfu, but only Kimono.
+Xiaohua realizes what is wrong. She opened her closet, and there was no Hanfu, but only Kimono.
 
 "Chikuso!"
 
@@ -34,8 +34,18 @@ Xiaohua is shocked and lets out a Japanese expression "Chikuso". She realized th
 
 "It can't be... How can this happen to me..."
 
-Xiaohua tried to calm herself down and think of a solution. She started to search the internet and found out that there are people who experienced the same thing as her.
+Xiaohua tried to calm herself down and think of a solution. 
 
-"Maybe I should talk to them and see if they have any advice..."
+"Oh-ha-yo-! Onee-chan!" the door is opened by someone.
 
-And so Xiaohua started her journey to find a way to change back to her original self.
+"Wait...I...I still haven't. No, I mean..."
+
+"Hohh... hohh, hohh." Xiaohua is confused and stutters while trying to explain.
+
+"Onee-chan, it's lunch time already! Come quickly, I'm getting hungry!"
+
+Xiaohua finally realized that she is now in Japan. She has no choice but to accept her new identity. 
+
+"Ohayo, I'm coming!" 
+
+Xiaohua takes a deep breath and accept her new identity as a Japanese. She is now ready to start her new life.
